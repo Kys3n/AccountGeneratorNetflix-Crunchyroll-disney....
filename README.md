@@ -1,2 +1,3 @@
 # AccountGeneratorNetflix-Crunchyroll-disney....
 This app is available on my discord server and can generate a lot of Netflix , Cruncyroll , hulu , pandora , wwe and disney + account so go there !
+https://discord.gg/9AFc8URSz6
